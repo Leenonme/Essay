@@ -6,7 +6,7 @@ ADA Academy Essay Questions
 ###1. Why are you interested in Programming? What have you done to expose yourself to programming so far?  
 
   I have held a fascination with programing, steming mainly from the internet, and my love for Photography. 
-It began in high school and continues to this day of me spending hours looking at artist work and sharing my [own](https://postimg.org/image/5mzmdqd23/). 
+It began in high school and continues to this day of me spending hours looking at artist work and sharing my [own](https://postimg.org/image/w4nfkb2gn/). 
 I set a goal for myself to build my own online portfiolo. While studying at Columbus College of Art and Design 
 I sought after more advanced digital training than what was offered to Photo Majors at the time. I took the Photoshop 
 and Wed Design classes from the graphic deign curriculum. After years of working freelance as a photographer, and random 

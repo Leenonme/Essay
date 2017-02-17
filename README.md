@@ -30,7 +30,7 @@ The past few years, I’ve been working with emotionally disabled children with 
 >“If your dreams do not scare you, they are not big enough” 
 >-Ellen Johnson Sirlearf
 
-I feel like I am at that same crossroads, again. I could stay in Columbus, where I can continue to do what I already know. Or I could seize this enormous opportunity, move across the country, leave my comfort zone, and push myself into the unknown and learn something new. I think it time for me to scare my melfy a little bit. I know this is the right choice for me, I hope you do too.
+I feel like I am at that same crossroads, again. I could stay in Columbus, where I can continue to do what I already know. Or I could seize this enormous opportunity, move across the country, leave my comfort zone, and push myself into the unknown and learn something new. I know this is the right choice for me, I hope you do too.
 
 
 

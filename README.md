@@ -26,12 +26,15 @@ During high school, photography was what I was good at, my art won a Scholastic 
 
 When I graduated I was excited to move to a big city to find myself, I landed in Chicago with my feet running. I quickly befriended many of Chicago’s Commercial Photographer’s, and have great memories working with them on photoshoots.  However after a year of working freelance my own career didn’t take off, and female assistants were not many photographers first call. Then the demand of repaying my student loans, begin. I took a steady job, then another, followed by another one. Until suddenly I was 27 years old, 5 years out of college, no longer a photographer, and unhappily employed at a dead end retail job. I also came to terms that photography is something that I love, but not a way to support myself. 
 The past few years, I’ve been working with emotionally disabled children with Columbus Public Schools. It’s been extremely gratifying building strong positive relationships with the students. I’ve witnessed the effects of poverty, drug addiction, and mental illness on children. All of my students have faced hardships, I’ll never be able to comprehend. It has completely humbled me and changed my perspective on societal issues. I know without a doubt their lives have impacted me more, then I have had on theirs. I would like to say that this job is something I can continue to do, but I know in myself this is not something I can sustain. My role at the school is extremely emotionally and  physically overwhelming, and the wage isn’t enough for me to be independent.
-I feel like I am at that same crossroads, again. I could stay in Columbus, where I can continue to do what I already know. Or I could seize this enormous opportunity, move across the country, leave my comfort zone, and push myself into the unknown and learn something new. I know this is the right choice for me, I hope you do too.
-
-
-
 
 >“If your dreams do not scare you, they are not big enough” 
 >-Ellen Johnson Sirlearf
+
+I feel like I am at that same crossroads, again. I could stay in Columbus, where I can continue to do what I already know. Or I could seize this enormous opportunity, move across the country, leave my comfort zone, and push myself into the unknown and learn something new. I think it time for me to scare my melfy a little bit. I know this is the right choice for me, I hope you do too.
+
+
+
+
+
 
 
